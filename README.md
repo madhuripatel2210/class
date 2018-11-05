@@ -1,7 +1,7 @@
 1794421  Vishal "Life is full of struggles"
 
 1795328 kshitij "The more something threatens your identity, the more you will avoid it."
-
+1794882 MAdhuri "Life throws you a thousand chances. All you have to do is take one and have faith……"
 
 1794810 Harsimran "Life is beautiful"
 
@@ -19,9 +19,5 @@
 
 
 1794821  simran "Life is great"
-
-1793897  baljeet "snow is coming"
-
-
 
 
