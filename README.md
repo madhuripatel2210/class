@@ -1,11 +1,7 @@
 1794421  Vishal "Life is full of struggles"
-1794750 Yograj "lol"
-
-1793418 Muskan "The best and most beautiful things in the world cannot be seen or even touched - they must be felt with the heart."
-
 
 1794948  kavya "Montreal is awesome"
-
+1794882 MAdhuri "Life throws you a thousand chances. All you have to do is take one and have faith……"
 
 
 
